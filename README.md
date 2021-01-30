@@ -1,17 +1,16 @@
-# **Bilgilendirme**
+# Çalınması Yasaktır
 
-> **`Hepinize Merhaba Arkadaşlar Bu Videoda Yeni Hazırladığımız V12 Kayıt Botunu Tanıttım,İyi Seyiler Diliyorum Tekrardan. Bu Tarz Videoların Devamı İçin Videoya Like ve Yorum Atmayı Unutmayın`**
+<img src="https://cdn.discordapp.com/attachments/726744679454081125/728555214021460028/a_6963b2073bea1582c1d3e4401db19c2f.gif">
 
-> [Videoya Gitmek İçin Tıkla](https://youtu.be/FXMcEM6y27w) 
 
-> [Discord Sunucusuna Katılmak İçin Tıkla](https://discord.gg/axjXvA9cCa)
 
-> 💳▸ Desteklemek için;
+**Kolpaçino Ogün :D**
 
-> 💳▸ İninal barkod : 4 092180334644
+- EMEGE SAYGI 
 
-> 📊▸ Sponsorluk ve reklam için;
+- Discord Adresımız : [TIKLA](https://discord.gg/6TR8rr2)
 
-> 📊▸ E-Posta adresi : kantasmehmetcan12@gmail.com
+- Hazırlayan :  ``OgünSert Kob's#0001``
 
-> 🎮▸ Discord Nick : Kobs#0001
+``En Üstte Yazanı Dikkate Alan Alır Görürsem Zaten Şikayet Edeceğim,I AM OGÜN``
+**Bu Alt Yapıyı Alıpta benim Diyenin Erkekse Siki Kopsun,Bayansa Çocu Olmasın Amen**
